@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @Medieval123
+- 👋 Hi, I’m OLABIYI JUDAH 
 - 👀 I’m interested in many activities
 - 🌱 I’m currently learning Web developments
-- 💞️ I’m looking to collaborate on several projects with other developers in due time
+- 💞️ I’m looking to collaborate on several projects with other developers in due time. Godspeed!
 - 📫 How to reach me --- Twitter. i'll definitely respond!
 
 <!---
